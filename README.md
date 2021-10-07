@@ -1,5 +1,0 @@
-- 👋 Hi, I’m @Da-Zero
-- 👀 I’m interested in DaBaby
-- 🌱 I’m currently learning DaBaby
-- 💞️ I’m looking to collaborate on DaBaby
-- 📫 How to reach me Dababy@dababy.dababy
